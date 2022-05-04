@@ -1,1 +1,0 @@
-# frizerdjuka.github.io
